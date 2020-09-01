@@ -1,5 +1,5 @@
-### _no herds, just the narrow gate_
-##### |          [body](https://thenarrowgate.github.io/body)       |       [food](https://thenarrowgate.github.io/food)        |        [mind](https://thenarrowgate.github.io/mind)       |       [words](https://thenarrowgate.github.io/words)          |       [news](https://thenarrowgate.github.io/news)        |       [about](https://thenarrowgate.github.io/about)         |          [home](https://thenarrowgate.github.io/)          |
+### _no herds, just the narrow gate_ 
+##### |          [body](https://thenarrowgate.github.io/body)       |       [food](https://thenarrowgate.github.io/food)        |        [movies](https://thenarrowgate.github.io/movies)       |        [music](https://thenarrowgate.github.io/music)        |         [words](https://thenarrowgate.github.io/words)          |       [news](https://thenarrowgate.github.io/news)        |       [about](https://thenarrowgate.github.io/about)         |          [home](https://thenarrowgate.github.io/)          |
 
 **............................................................................................**
 
