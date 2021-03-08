@@ -61,7 +61,7 @@ For a quick start, here are some of the movies I thoroughly enjoyed:
 50. While You Were Sleeping (series)
 51. Kingdom (series)
 52. Start-up (series)
-53. Strong Girl Bong Soon (Series)
+53. [Strong Girl Bong Soon](https://tv.jtbc.joins.com/dobongsoon)
 
 **............................................................................................**
 
