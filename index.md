@@ -60,14 +60,10 @@ For a quick start, here are some of the movies I thoroughly enjoyed:
 49. Hotel Del Luna (series)
 50. While You Were Sleeping (series)
 51. Kingdom (series)
+52. Start-up (series)
+53. Strong Girl Bong Soon (Series)
 
 **............................................................................................**
 
-Hotel Del Luna Ep.1
-
-- Moonlight
-- Age of the Moon
-- Samdochun
-- Deluna Party
 
 
